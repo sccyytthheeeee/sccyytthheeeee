@@ -20,6 +20,8 @@ THINGS TO KNOW BOUT ME ! :
 
 . specialized FLUFF / ANGST / ACTION ( Action = fighting :: killing )
 
+![image](https://github.com/user-attachments/assets/8302c64c-ccf9-4b7a-b5c8-afedf6ae362e)
+
 . request ANYTIME ! 
 
 . dm me on disc to request -> @bwr701_14389
