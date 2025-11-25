@@ -1,3 +1,5 @@
+https://files.catbox.moe/xdhgef.png<img width="1627" height="721" alt="image" src="https://github.com/user-attachments/assets/a1cc90ef-3b1f-4d12-8cdb-dbca4e541ea2" />
+
 ### } | > HxCKING . . . 🌀
 
 https://files.catbox.moe/9oqhfv.png<img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/d01edcc7-5cbd-43c0-949a-92bf645310a3" />
@@ -30,3 +32,6 @@ https://files.catbox.moe/9oqhfv.png<img width="1000" height="50" alt="image" src
                  > ITS ME ⬇️⬇️
 
 ![image](https://github.com/user-attachments/assets/463e99bd-9437-4ecf-9e4b-bc3ed9dd078b)
+
+
+https://files.catbox.moe/j2le6t.png<img width="1627" height="721" alt="image" src="https://github.com/user-attachments/assets/025a4bbf-8e9d-4978-9c7a-d3b347b20ed5" />
