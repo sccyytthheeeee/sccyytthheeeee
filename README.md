@@ -13,9 +13,13 @@ https://files.catbox.moe/9oqhfv.png<img width="1000" height="50" alt="image" src
 ![image](https://github.com/user-attachments/assets/1d220698-499c-4ee0-8491-5b926b2bb733)
 
 > So this is me ! local hyperlaser + datagen + noli { HJD } FICTKIN !
+
 💌 : ML , NEO METAL SONIC ::
 
+                                                             enter text message here
 
 { # IF YOUR READING THIS ILYSM AAAAA !! ♥️
+
+https://files.catbox.moe/9oqhfv.png<img width="1000" height="50" alt="image" src="https://github.com/user-attachments/assets/cdff19e3-9eaa-4cbe-bd90-d3384604b51e" />
 
 ![image](https://github.com/user-attachments/assets/3c288e94-0358-493f-acc5-fe177d48d5b4)
