@@ -43,6 +43,8 @@ Also , pfp on disc meaning
 
 . Scythe : good mood , wanting to write , int anytime
 
+. Jester Two Time : LOVELY MOOD ! excited . int int int AAA !
+
    ---------- ♥️ ----------
 . dm me on disc to request -> @bwr701_14389
  - ⬇️ -
