@@ -23,7 +23,27 @@ THINGS TO KNOW BOUT ME ! :
 ![image](https://github.com/user-attachments/assets/8302c64c-ccf9-4b7a-b5c8-afedf6ae362e)
 
 . request ANYTIME ! 
+Also , pfp on disc meaning
 
+. Noli ( 4SKN ) : dniuf / dniucf
+
+. Noli ( HJD ) : INT ANYTIME !!
+
+. Datagen : int anytime
+
+. Sawnoob : DNI DNI DNI AT ALL
+
+. Hyperlaser : listening to music / playing P!
+
+. 1x1x1x1 : lonely , feeling alone . int please . 
+
+. V1 : thinking how to k!ll someone / homicidal ideation moment .
+
+. Vinestaff : envious . 
+
+. Scythe : good mood , wanting to write , int anytime
+
+   ---------- ♥️ ----------
 . dm me on disc to request -> @bwr701_14389
  - ⬇️ -
    
