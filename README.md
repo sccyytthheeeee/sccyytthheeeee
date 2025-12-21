@@ -33,13 +33,15 @@
 
 :: flag ( sym ) flag ::
 
-- divider -
+<img width="2048" height="377" alt="image" src="https://github.com/user-attachments/assets/926f0048-fc19-4ff5-a8c9-0a3b109db98b" />
+
 
 | phighting :: arrow :: ( gif )
 
  > PH img <-
 
-- divider -
+<img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/b16dac58-7eea-443d-bdee-3b31a2d53248" />
+
 
 :: end img ::
 
