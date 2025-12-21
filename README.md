@@ -18,7 +18,8 @@
 
 > info :: info
 
-- button + . stamp -
+- <img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/401d9c5c-ac51-4faf-bd04-2899308909a7" />
+ + . stamp -
 
 - divider -
 
