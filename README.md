@@ -32,7 +32,7 @@
 
 
 <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/18b85ebd-dd8e-4e11-ac51-3d21a15f098a" />
-(⸝⸝ᴗ﹏ᴗ⸝⸝)　  <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/39c590ea-de9f-4209-a55f-cce9c48f2d2a" />
+ (⸝⸝ᴗ﹏ᴗ⸝⸝) <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/39c590ea-de9f-4209-a55f-cce9c48f2d2a" />
 
 
 <img width="2048" height="377" alt="image" src="https://github.com/user-attachments/assets/926f0048-fc19-4ff5-a8c9-0a3b109db98b" />
