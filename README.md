@@ -18,8 +18,8 @@
 
 > info :: info
 
-- <img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/401d9c5c-ac51-4faf-bd04-2899308909a7" />
- + . stamp -
+ <img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/401d9c5c-ac51-4faf-bd04-2899308909a7" /> + .![image](https://github.com/user-attachments/assets/6cab4efb-5a01-42f9-8262-c09de777b709)
+
 
 - divider -
 
