@@ -28,7 +28,8 @@
  <img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/401d9c5c-ac51-4faf-bd04-2899308909a7" /> + .![image](https://github.com/user-attachments/assets/6cab4efb-5a01-42f9-8262-c09de777b709)
 
 
-- divider -
+<img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/f414e10c-2948-4a91-a113-3b0244b56820" />
+
 
 :: flag ( sym ) flag ::
 
