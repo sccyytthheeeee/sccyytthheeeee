@@ -30,5 +30,6 @@
 
 :: end img ::
 
-:: end rentry ::
+https://files.catbox.moe/777r4e.png<img width="2038" height="646" alt="image" src="https://github.com/user-attachments/assets/03671e51-2689-4ed2-89b1-2d6139b7a947" />
+
 
