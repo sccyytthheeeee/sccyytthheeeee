@@ -31,7 +31,8 @@
 <img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/f414e10c-2948-4a91-a113-3b0244b56820" />
 
 
-:: flag ( sym ) flag ::
+:: flag ( sym ) flag :: ![image](https://github.com/user-attachments/assets/44941f0b-8f1f-4375-9e74-9377b0569752)
+
 
 <img width="2048" height="377" alt="image" src="https://github.com/user-attachments/assets/926f0048-fc19-4ff5-a8c9-0a3b109db98b" />
 
