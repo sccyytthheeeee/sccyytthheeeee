@@ -5,7 +5,7 @@
 
    <img width="391" height="43" alt="image" src="https://github.com/user-attachments/assets/d43c520e-c0e4-4f7a-8987-3b2778385962" />          <img width="391" height="43" alt="image" src="https://github.com/user-attachments/assets/31a62683-7d34-4be9-bb2a-1164d1ebc394" />
 
-:: sticker / button :: > its been 7 weeks and 3 days .. hey ! :: gif :: // sym 
+https://64.media.tumblr.com/587848c53c4a89522b12056c7499658d/1a6c7b4fec6eeb21-f7/s75x75_c1/539818e6d73516057557d45c8e32dbc6adf44eb3.gifv > its been 7 weeks and 3 days .. hey ! :: gif :: // sym 
 
 ![image](https://github.com/user-attachments/assets/4cec084f-c6c3-43d5-8341-a7b05c8b9246)
 
