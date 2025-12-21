@@ -31,7 +31,9 @@
 <img width="2048" height="687" alt="image" src="https://github.com/user-attachments/assets/f414e10c-2948-4a91-a113-3b0244b56820" />
 
 
-:: flag ( sym ) flag :: ![image](https://github.com/user-attachments/assets/44941f0b-8f1f-4375-9e74-9377b0569752)
+<img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/18b85ebd-dd8e-4e11-ac51-3d21a15f098a" />
+ ( sym ) <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/39c590ea-de9f-4209-a55f-cce9c48f2d2a" />
+ ![image](https://github.com/user-attachments/assets/44941f0b-8f1f-4375-9e74-9377b0569752)
 
 
 <img width="2048" height="377" alt="image" src="https://github.com/user-attachments/assets/926f0048-fc19-4ff5-a8c9-0a3b109db98b" />
